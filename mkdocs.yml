@@ -1,0 +1,77 @@
+#####################
+# BASICS
+site_name: Swerve Robotics
+site_url: https://swerverobotics.github.io
+markdown_extensions:
+    - smarty
+    - meta
+
+#####################
+# NAV 
+nav:
+- Home: index.md
+- About: about.md
+- Teams:
+    - FTC: teams/teams_ftc.md
+    - FLLC: teams/teams_fllc.md
+    - FLLE: teams/teams_flle.md
+- News: news.md
+- Events: events.md
+- Contact Us: contact.md
+
+#####################
+# THEME
+theme:
+    name: material
+    #custom_dir: docs/material
+
+    # 404 page
+    static_templates:
+        - 404.html
+
+    # Necessary for search to work properly
+    include_search_page: false
+    search_index_only: true
+
+    # Default values, taken from mkdocs_theme.yml, necessary for github pages deployment
+    language: en
+    font:
+        text: Roboto
+        code: Roboto Mono
+    favicon: assets/images/cropped-Swerve-Robotics-favicon-32x32.png
+    icon:
+        logo: logo
+    palette:
+        - scheme: default
+          primary: deep purple
+          accent: green
+          toggle:
+            icon: material/toggle-switch-off-outline 
+            name: Switch to dark mode
+        - scheme: slate 
+          toggle:
+            icon: material/toggle-switch
+            name: Switch to light mode
+
+    # Additional Values
+    features:
+        - navigation.instant
+        - navigation.tracking
+        - toc.follow
+        #- toc.integrate
+        - navigation.top
+
+#####################
+# EXTRAS
+use_directory_urls: false # enabled the direct html link for the Guntley PV Barn
+extra:
+    social:
+        - icon: fontawesome/brands/linkedin
+          link: https://www.linkedin.com/company/swerve-robotics/
+        - icon: fontawesome/brands/github
+          link: https://github.com/swerverobotics/
+
+#####################
+# PLUGINS
+plugins:
+    - search
