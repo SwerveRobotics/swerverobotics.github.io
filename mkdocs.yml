@@ -38,7 +38,7 @@ theme:
     font:
         text: Roboto
         code: Roboto Mono
-    favicon: assets/images/cropped-Swerve-Robotics-favicon-32x32.png
+    favicon: assets/images/swerve-favicon32x32.png
     icon:
         logo: logo
     palette:
