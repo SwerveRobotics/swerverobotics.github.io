@@ -4,7 +4,7 @@
 
 ## FTC 417
 
-(Team Pic)
+![SKID Team](../assets/images/ftc_417_2022.jpg)
 
 S.K.I.D. (Space Koalas In Disguise)
 
