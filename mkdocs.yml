@@ -23,6 +23,7 @@ nav:
 # THEME
 theme:
     name: material
+    logo: assets/images/Swerve-Robotics-Logo-1024x289-1.png
     #custom_dir: docs/material
 
     # 404 page
