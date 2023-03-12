@@ -1,3 +1,3 @@
 # Swerve Planning to Return to Botswana
 
-![](../assets/images/news_2023_02_botswana.png)
+![](../assets/images/news/2023_02_botswana.png)
