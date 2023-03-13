@@ -43,16 +43,27 @@ theme:
     icon:
         logo: logo
     palette:
+        - scheme: default 
+          primary: blue
+          toggle:
+            icon: material/infinity
+            name: "8923 TWIST theme"
+        - scheme: default 
+          primary: pink
+          toggle:
+            icon: material/google-downasaur
+            name: "6220 DRIFT theme"
+        - scheme: default 
+          primary: green
+          toggle:
+            icon:  material/koala
+            name: "417 SKID theme"
         - scheme: default
           primary: deep purple
           accent: green
           toggle:
-            icon: material/toggle-switch-off-outline 
-            name: Switch to dark mode
-        - scheme: slate 
-          toggle:
-            icon: material/toggle-switch
-            name: Switch to light mode
+              icon: fontawesome/solid/robot
+              name: "Swerve Robotics theme"
 
     # Additional Values
     features:
