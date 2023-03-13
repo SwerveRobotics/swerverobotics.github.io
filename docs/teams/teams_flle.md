@@ -1,9 +1,9 @@
 # Swerve First LEGO League Explore Teams
 
-(FLLE logo here)
+![FLLC](../assets/images/logo_flle_rgb.png){width="100"}
 
 ## FLL Explore 5134 / FLL Explore 20375
 
-(Team Pic)
+![Seven Wolves / Rainbow Dolphins](../assets/images/flle_34195_2021.jpg)
 
 Seven Wolves / Rainbow Dolphins

@@ -1,6 +1,6 @@
 # Swerve First Tech Challenge Teams
 
-(FTC logo here)
+![FTC](../assets/images/logo_ftc_vertical_rgb.png){width="100"}
 
 ## FTC 417
 
@@ -10,12 +10,16 @@ S.K.I.D. (Space Koalas In Disguise)
 
 ## FTC 6220
 
-(Team Pic)
+![DRIFT Team](../assets/images/ftc_6220_2022.jpg)
 
 D.R.I.F.T. (Dinosaurs Riding In Food Trucks)
 
 ## FTC 8923
 
-(Team Pic)
+![TWIST Team](../assets/images/ftc_8923_2022.jpg)
 
 TWIST
+
+## FTC All Teams
+
+![FTC 2022](../assets/images/ftc_all_teams_2022.jpg)

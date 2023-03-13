@@ -5,6 +5,7 @@ site_url: https://swerverobotics.github.io
 markdown_extensions:
     - smarty
     - meta
+    - attr_list
 
 #####################
 # NAV 
