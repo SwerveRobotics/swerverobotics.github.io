@@ -15,7 +15,8 @@ nav:
     - FTC: teams/teams_ftc.md
     - FLLC: teams/teams_fllc.md
     - FLLE: teams/teams_flle.md
-- News: news.md
+- News:
+    - Swerve Returning to Botswana: news/2023_02_botswana.md
 - Events: events.md
 - Contact Us: contact.md
 
