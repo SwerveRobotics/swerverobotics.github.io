@@ -1,10 +1,10 @@
-# Swerve First LEGO League Challenge Teams
+# Swerve FIRST LEGO League Challenge Teams
 
-![FLLC](../assets/images/logo_fllc_rgb.png){width="100"}
+![FLLC](../assets/images/logo_fllc_rgb.png){width="15%"}
 
 ## FLL 2797
 
-![Lightning Cats Team](../assets/images/fllc_2797_2022.jpg){width="30%"}
+![Lightning Cats Team](../assets/images/fllc_2797_2022.jpg)
 
 Lightning Cats
 

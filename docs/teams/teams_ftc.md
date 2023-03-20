@@ -1,4 +1,4 @@
-# Swerve First Tech Challenge Teams
+# Swerve FIRST Tech Challenge Teams
 
 ![FTC](../assets/images/logo_ftc_vertical_rgb.png){width="100"}
 

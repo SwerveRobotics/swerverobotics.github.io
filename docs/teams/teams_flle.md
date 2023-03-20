@@ -1,4 +1,4 @@
-# Swerve First LEGO League Explore Teams
+# Swerve FIRST LEGO League Explore Teams
 
 ![FLLC](../assets/images/logo_flle_rgb.png){width="100"}
 
