@@ -42,6 +42,8 @@ theme:
     favicon: assets/images/swerve-favicon32x32.png
     icon:
         logo: logo
+    # The palettes need to be in reverse order (blue-pink-green-purple)
+    # so they display in the correct order (purple-green-pink-blue)
     palette:
         - scheme: default 
           primary: blue
