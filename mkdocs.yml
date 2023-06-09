@@ -20,7 +20,10 @@ nav:
     - Swerve Returning to Botswana: news/2023_02_botswana.md
 - Events: events.md
 - Contact Us: contact.md
-- Training: training/training.md
+- Training:
+    - Training Grounds: training/training.md
+    - Eukota: training/eukota.md
+
 
 #####################
 # THEME
