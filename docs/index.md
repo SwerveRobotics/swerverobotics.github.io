@@ -1,4 +1,4 @@
 # Welcome to Swerve Robotics
 
-<h1 style="text-align: center;">Igniting youthful minds through education, hard work, mentorship, and healthy competition.</h1>
-
+This is the website for Swerve Robotics teams to use.
+The general website can be found at [swerverobotics.org]()
