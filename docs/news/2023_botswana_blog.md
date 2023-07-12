@@ -1,5 +1,33 @@
 # Botswana Blog
 
+## Day 11
+Today we visited the Mahupu Unified Secondary school for a cultural and knowledge exchange. We started off on rough footing as many of us had only found out the day prior that we would be presenting. Furthermore, we were late. An hour late. When we finally arrived, we entered a large auditorium with a stage at the front, over 50 chairs in the audience rows, and two FLL tables near the back, out of the way. There were so many school kids here and they were already messing around with their robots on the fields. Everyone was called over to the audience chairs and then we started the opening ceremonies with Rethabile from Dare to Dream. She first introduced guests such as two tribe chiefs representing their support of the program and other heads sitting at the table (Rob, Heidi, and Phatsima included). We then moved onto the many presentations. Local staff and community leaders spoke on how FLL impacted their communities for the better. FLL team coaches invited students from their teams to share about how FLL impacted them personally. It was truly inspiring to hear how they grew through the program. For our presentations, Heidi had her first keynote speech today! We presented on what FLL means to us, game strategy, robot design principles, core values, the innovation project, and coding practices. In between presentations from leaders of the local community, we had various forms of breaks through a stand-up poem in a native language and traditional dance as part of the cultural exchange.
+
+After all the formalities had finished, we broke for lunch and to students demonstrating their robots. We then got the opportunity to have more intimate conversations with them about who they were, what they were interested in, and how we can help them better understand more complex FLL concepts. We spent a lot of time talking to them about how to use sensors, as their robots, while quite good (as evidenced by the 9 trophies they had on display), could be improved with the usage of color sensors and the gyro sensor. We also showed them the importance of using jigs to line their robots up as we noticed they were just counting squares. We’re just imagining the number of trophies they could be bringing back when they start implementing the advice we gave them. Before we said a solemn goodbye, we made sure to share contact information so we can remain involved in their journey through FLL and life. We all agreed being able to teach and talk with those kids was probably the most fun we’ve had in this entire trip.
+
+Afterwards, we went to this place called RoccoMomma where they served American style food with American style portions. It was probably the most we had eaten in one meal for a while (and not in a good way)!
+
+### Images
+![Alt text](botswana_images/11/_P8A8445.JPG)
+
+![Alt text](botswana_images/11/image_from_ios.jpg)
+
+![Alt text](botswana_images/11/IMG_4836.jpeg)
+
+![Alt text](botswana_images/11/IMG_4842.jpeg)
+
+## Day 10
+Today we traveled for 13 hours from Maun to Gaborone. There really wasn’t much more to this day but it was long and boring. The coolest parts were seeing the sunsets, stars, and eating a lot of food but never having a real meal. We hope you enjoy the photos below.
+
+### Images
+![The group must choose snacks wisely](botswana_images/10/20230706_084729.jpg)
+
+![The group in a car](botswana_images/10/20230706_103741.jpg)
+
+![Alt text](botswana_images/10/20230706_165307.jpg)
+
+![A nice sunset](botswana_images/10/20230706_180605.jpg)
+
 ## Days 6-9 (Maun training camp)
 
 ### Day 1
