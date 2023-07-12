@@ -16,6 +16,18 @@ Afterwards, we went to this place called RoccoMomma where they served American s
 
 ![Alt text](botswana_images/11/IMG_4842.jpeg)
 
+![Alt text](botswana_images/11/_P8A8434.JPG)
+
+![Alt text](botswana_images/11/_P8A8442.JPG)
+
+![Alt text](botswana_images/11/_P8A8456.JPG)
+
+![Alt text](botswana_images/11/_P8A8494.JPG)
+
+![Alt text](botswana_images/11/IMG_4830.jpeg)
+
+![Alt text](botswana_images/11/IMG_4837.jpeg)
+
 ## Day 10
 Today we traveled for 13 hours from Maun to Gaborone. There really wasn’t much more to this day but it was long and boring. The coolest parts were seeing the sunsets, stars, and eating a lot of food but never having a real meal. We hope you enjoy the photos below.
 
