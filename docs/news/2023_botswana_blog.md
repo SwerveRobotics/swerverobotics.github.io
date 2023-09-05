@@ -154,3 +154,12 @@ Today marks the third and final day of our training camp in Gaborone. We were gr
 This marks the end of our journey as we return to America tomorrow by means of too many long plane rides. It’s been an incredible journey that we all will never forget. We are all exhausted, but we would do this for the country of Botswana again in a heartbeat. Seeing how empowered everyone felt after being given this opportunity to explore STEM was inspiring and we look eagerly on to see what Botswana does next. As this story closes another will begin. It couldn’t have been done without the support of our donors, families, mentors, and you! So, from the bottom of our travel weary hearts, thank you.
 
 Botswana Lads signing off.
+
+## Botswana: after the fact
+On the plane ride home, we got sent a picture of a newscast showing the Ministry of Education saying they want FLL in every school in Botswana. It was surreal to see the impact we made with the Ministry supporting the FLL program on live TV. We are incredibly hopeful for what the future brings, and are keeping in contact with the teachers and students we have met through WhatsApp. We have even already been invited to go back to do
+similar work two summers from now!!
+
+![Alt text](botswana_images/last/img0.jpg)
+![Alt text](botswana_images/last/img1.jpg)
+![Alt text](botswana_images/last/img2.jpg)
+![Alt text](botswana_images/last/img3.jpg)
