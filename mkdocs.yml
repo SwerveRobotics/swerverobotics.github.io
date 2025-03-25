@@ -17,7 +17,8 @@ nav:
     - FLLC: teams/teams_fllc.md
     - FLLE: teams/teams_flle.md
 - News:
-    - Botswana Blog: news/2023_botswana_blog.md
+    - Botswana Blog - 2023: news/2023_botswana_blog.md
+    - Botswana Blog - 2025: news/2025_botswana_blog.md
     # - Swerve Returning to Botswana: news/2023_02_botswana.md
 - Events: events.md
 - Contact Us: contact.md
