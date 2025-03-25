@@ -1,4 +1,4 @@
-# Botswana Blog
+# Botswana Blog - 2023
 
 
 ## Days 1-3 (6/26 – 6/28) (it really feels like one long day though)
