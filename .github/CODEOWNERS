@@ -1,0 +1,11 @@
+# This is a comment.
+# Each line is a file pattern followed by one or more owners.
+
+# Technical Website Team members must approve changes to configs and actions
+/.github/ @SwerveRobotics/website-technical
+/*.yaml @SwerveRobotics/website-technical
+/*.yml @SwerveRobotics/website-technical
+/Makefile @SwerveRobotics/website-technical
+
+# Website Content Moderators must approve any and all Site Content
+/docs/ @SwerveRobotics/website-content
