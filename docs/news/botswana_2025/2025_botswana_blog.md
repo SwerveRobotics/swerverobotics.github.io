@@ -34,13 +34,20 @@ Exhausted but excited, we stayed up until 9:00 PM in order to combat jet lag and
 
 Everyone woke up at different times today, so we had a nice, chill morning, and we all had fun on our breakfast adventures. Eric and Rob woke up early for a morning run, while Emlyn and Bharvi woke up around 9:00. Everyone starting trickling into the breakfast area where we debated what constituted a sandwich versus a toast, Bharvi made her morning chai, and Eric attempted to flip an egg without a spatula... (spoiler alert - it didn't go well!) 
 
-After breakfast and showers, we were informed that we needed to build a FLL field for the cultural exhange we have tomorrow. The rest of our morning went by with Eric doing some coding, the rest of us building various LEGO model missions, and Heidi writing a bio for her speech tomorrow. It started out theraputic, but we ended up with only 3 missons complete before it was time for lunch. 
+After breakfast and showers, we were informed that we needed to build a FLL field for the cultural exhange we have tomorrow. The rest of our morning went by with Eric doing some coding, the rest of us building various LEGO model missions, and Heidi writing a bio for her speech tomorrow. It started out theraputic, but we ended up with only 3 missons complete before it was time for lunch.  
 
 ![Group photo building LEGO missions](botswana_images/LEGO%20mission%20building.jpg)
 
+For lunch we enjoyed a nice meal at a restaurant in the local mall before heading to a small grocery store to pick up some food for lunch tomorrow.
+
 ![An automatic bread slicer](botswana_images/Bread%20cutter.jpg)
+
+We then went back to the AirBNB to do even more LEGO building and SPIKE Prime robot coding before heading out to a nice dinner with Heidi's cousin — the top lawyer in Botswana! — and his wife (this was also at the mall).
 
 ![Orange drink with a slice of orange](botswana_images/Orange%20drink.jpg)
 
+Just for funsies, Bharvi and Emlyn tried some mocktails, and so did Heidi, but of course Emlyn didn't know this when Heidi first offered her to try her drink, and she was rather concerned. One of us actually had a fun drink at lunch called "Malawi Shandy" which was a combination of lemonade and "Stoney", a popular and very strong ginger beer in Botswana, and it was throughly enjoyed.
+
 ![Group photo in the Two Six Seven Restaurant](botswana_images/267%20Restaurant.jpg)
 
+All tired, we drove home to bed, but not before finishing the last of the LEGO work.
