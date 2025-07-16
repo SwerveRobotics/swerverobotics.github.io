@@ -38,7 +38,7 @@ After breakfast and showers, we were informed that we needed to build a FLL fiel
 
 ![Group photo building LEGO missions](botswana_images/LEGO%20mission%20building.jpg)
 
-For lunch we enjoyed a nice meal at a restaurant in the local mall before heading to a small grocery store to pick up some food for lunch tomorrow.
+For lunch we enjoyed a nice meal at a restaurant in the local mall before heading to a small grocery store to pick up some food for lunch tomorrow. We saw an automatic bread slicer!
 
 ![An automatic bread slicer](botswana_images/Bread%20cutter.jpg)
 
