@@ -51,3 +51,38 @@ Just for funsies, Bharvi and Emlyn tried some mocktails, and so did Heidi, but o
 ![Group photo in the Two Six Seven Restaurant](botswana_images/267%20Restaurant.jpg)
 
 All tired, we drove home to bed, but not before finishing the last of the LEGO work.
+
+## Day 5 (7/17)
+
+The morning started off slow again today with people trickling in as they woke up. Eric and Rob went for a morning run, while Heidi walked, and Sara, Emlyn, Hank, and Bharvi held down the fort at the AirBNB. Since we had to leave at noon, the morning was spent grazing as there wasn't much time to get lunch and we had plenty of food from the store. The morning was also spent — somewhat frantically — coding the robot for the cultural exchange later.
+
+![Coding the SPIKE Prime robot in preparation for the cultural exchange](botswana_images/SPIKE%20Prime%20robot%20coding.jpg)
+
+We left just after noon for the cultural exchange event, stopping at the Dare to Dream office first to go over plans. We then drove to the Mogoditshane Senior Secondary School, a upper-ages high-school equivalent, but we also had younger students visiting from the other Mogoditshane Junior Secondary School campus. Of these schools' 1,800 students, we met with around 55 of them in their auditorium. The cultural exchange event began with some speeches, from the schools' leadership, from Dare to Dream founder Captain Kgomotso Phatsima, and even from our very own Heidi. Afterwards, we were treated to a traditional dance. We learned later that this was the group's first time preforming the dance, but you would never have been able to tell that it was because they seemed so confident and well-rehearsed. Afterwards, we began to talk with the students. While at first everyone was nervous, since we and the students of Mogoditshane Senior and Junior Secondary School were quiet with nerves, eventually we all got more comfortable and the conversation began to flow.
+
+![Mogoditshane Senior Secondary School Dance Club](botswana_images/Traditional%20dance.jpg)
+
+
+First, we ran through the basics of FLL robotics: the game, the innovation project, and core values. We made sure to emphasize that in FIRST, robotics is more than just technical skills: it is about leadership, communication, and so much more. The students seemed interested in the program, asking loads of questions about what coding language we used and how the game worked.
+
+![Eric explaining in the Mogoditshane Senior Secondary School](botswana_images/Eric%20explaining.jpg)
+
+![Emlyn explaining there](botswana_images/Emlyn%20explaining.jpg)
+
+After going over FLL, we wanted to learn more about each other's cultures. At first we had group question time, where they asked us questions about America, the school system, the culture, and the weather. The students seemed amazed when we revealed that we were only 15-18 years old and not in our 20s like they expected or thought we were. On the other hand, we asked about their school system, their traditions, and much more. We bonded over our shared experieces of the joys of math in school and were baffled by each other's weather (although Fahrenheit-Celsius conversions had to be made).
+
+![Group photo in the Mogoditshane Senior Secondary School](botswana_images/Mogoditshane%20cultural%20exchange%20group%20picture.jpg)
+
+We then split up to talk to smaller groups, opening up for questions people were too shy to ask in person. Many photos were taken and many questions were asked. Some students stayed an extra 30+ minutes just to ask more questions. Eric was able to go over his code in more depth, even demonstrating Python and more complex coding aspects, while Emlyn fielded more questions about life in America, universities, and leadership. Hank and Bharvi worked together, further explaining the FLL program and spreading the joy of robotics.
+
+![Hank explaining in the Mogoditshane Senior Secondary School](botswana_images/Hank%20explaining.jpg)
+
+![Bharvi explaining there](botswana_images/Bharvi%20explaining.jpg)
+
+Exhausted, we loaded back into the van and went to dinner. While traveling, we saw cows!
+
+![Cows in a upholstery stall](botswana_images/Cows.jpg)
+
+Bharvi was desperate for food other than just hamburgers and fries (honestly, we all were), and so we found a restaurant with a wide variety of food including curry, paneer, ribs, kebab, and so much more, which everyone was able to enjoy. Bharvi enjoyed the food a lot, but not enough to stay awake, accidentally falling asleep at the table. It was possibly a food-induced coma, or maybe it was just from the day's hard work.
+
+![Bharvi in a food-induced coma](botswana_images/Bharvi%20sleeping.jpg)
