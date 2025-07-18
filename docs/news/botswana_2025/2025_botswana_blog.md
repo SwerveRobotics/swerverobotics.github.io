@@ -94,7 +94,7 @@ We started the day very early because we supposedly had a flight to catch at 8. 
 
 When it was finally close enough to 9:00 we got through security right in time to begin boarding, but not before taking a photo with a wooden elephant sculpture. While in line for boarding, Eric and Hank were informed that their seats were moved and that they had to go to the back because they were "big guys" and the plane needed to be balanced. 
 
-![A wooden elephant sculpture](botswana_images/Elephant_sculpture.jpg)
+![A wooden elephant sculpture](botswana_images/Elephant%20sculpture.jpg)
 
 The flight itself was gorgeous. We flew over the stunning landscape of Botswana from south to north. The highlight of the flight was seeing the Makgadikgadi Pan. While we were origanally supposed to see the salt flats in-person and we won't get to do that, flying over them was still a wonderful view.
 
