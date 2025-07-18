@@ -85,3 +85,31 @@ Exhausted, we loaded back into the van and went to dinner. While traveling, we s
 Bharvi was desperate for food other than just hamburgers and fries (honestly, we all were), and so we found a restaurant with a wide variety of food including curry, paneer, ribs, kebab, and so much more, which everyone was able to enjoy. Bharvi enjoyed the food a lot, but not enough to stay awake, accidentally falling asleep at the table. It was possibly a food-induced coma, or maybe it was just from the day's hard work.
 
 ![Bharvi in a food-induced coma](botswana_images/Bharvi%20sleeping.jpg)
+
+## Day 6 (7/18)
+
+We started the day very early because we supposedly had a flight to catch at 8. Eric and Emlyn woke up at 5:45 and everyone else woke up at 6:00-ish. We rushed to get out the door, seeing the sunrise on the way, and were somehow still late, although that ended up not mattering because our flight was delayed till 9:30. However, this meant that we got to enjoy a nice breakfast at the airport, some of us even having carrot cake with our meal. Eric, Heidi, and Emlyn all had breakfast bagels. Eric says his was rather egg-like. 
+
+![The sunrise in Botswana](botswana_images/Sunrise.jpg)
+
+When it was finally close enough to 9:00 we got through security right in time to begin boarding, but not before taking a photo with a wooden elephant sculpture. While in line for boarding, Eric and Hank were informed that their seats were moved and that they had to go to the back because they were "big guys" and the plane needed to be balanced. 
+
+![A wooden elephant sculpture](botswana_images/Elephant_sculpture.jpg)
+
+The flight itself was gorgeous. We flew over the stunning landscape of Botswana from south to north. The highlight of the flight was seeing the Makgadikgadi Pan. While we were origanally supposed to see the salt flats in-person and we won't get to do that, flying over them was still a wonderful view.
+
+![Makgadikgadi Pan salt flats](botswana_images/Salt%20flats.jpg)
+
+Once we landed, we grabbed our bags, got a bite to eat, and headed to our hotel to drop our bags and head to the border. Our drive to the Botswana-Zimbabwe border was in an open-sided safari van, so we enjoyed a strong breeze while hoping to spot wildlife. Even though we thought we had pre-applied for visas to get into Zimbabwe, we still had to re-do everything, and even then some of us ran into more trouble with passports. Baboons entertained us with their antics as the rest of us were waiting, and after some troubleshooting, we passed through into Zimbabwe.
+
+![Baboon at the Botswana-Zimbabwe border](botswana_images/Baboon.jpg)
+
+After reaching Zimbabwe, we realized that there was some confusion among the tours that we had booked, and we had to switch drivers. Finally, we reached Victoria Falls. It was absolutely gorgeous and we realized why it was one of the natural wonders of the world. Our favorite site was the first viewpoint, with a rainbow and a part of the falls. We all got drenched halfway through(especially Eric!) and enjoyed the sun as we dried off. 
+
+![Widest portion of Victoria Falls](botswana_images/Victoria%20Falls%20wide.jpg)
+
+![Looking down into the chasm](botswana_images/Victoria%20Falls%20narrow.jpg)
+
+![Group photo at Victoria Falls](botswana_images/Victoria%20Falls%20group%20photo.jpg)
+
+After we finished the falls, we had to rush to the border in order to we reach there before it was closed. By this point, we were all starving and finally got some food in our systems as well as bought some water. We drove to the hotel and ate dinner together. At the end of the day, we all met up in Bharvi and Emlyn's room to hang out, write this blog, and finish off the day. 
