@@ -138,7 +138,7 @@ We had expected to have to search for animals, but once we got to the river, the
 
 ![Out for a walk](botswana_images/Out_for_a_walk.jpg)
 
-[//] # (Add impala)
+[//]: # (Add impala)
 
 Before it got too late, we headed away from the river in search of the elusory leopard. Unfortunately, we weren't so lucky, but we maintain the hope of seeing it tomorrow morning when we leave at 6:30. Eventually, we stopped for a well-needed snack. Our guide was prepared and brought out drinks for the adults and juices for the kids, as well as naan and hummus as a snack. We watched the sunset while enjoying our small meal.
 
