@@ -113,3 +113,37 @@ After reaching Zimbabwe, we realized that there was some confusion among the tou
 ![Group photo at Victoria Falls](botswana_images/Victoria%20Falls%20group%20photo.jpg)
 
 After we finished the falls, we had to rush to the border in order to we reach there before it was closed. By this point, we were all starving and finally got some food in our systems as well as bought some water. We drove to the hotel and ate dinner together. At the end of the day, we all met up in Bharvi and Emlyn's room to hang out, write this blog, and finish off the day. 
+
+## Day 7 (7/19)
+
+We started our day at 8:00 with a breakfast of plenty of toast, eggs, and cereal. Then we made our way to the safari camp where we were treated to some delicous mango fruit drinks upon arrival, informed about the rest of our stay, and scared away from talking to the lions. After a quick game of cards, we were shown to our rooms and took in the gorgeous view of the Chobe River.
+
+![A view of the river](botswana_images/Chobe_River.jpg)
+
+Then we returned to the common area for lunch. Eric, antsy to get moving and forbidden from running around the camp, instigated a trip to the pool. Eric discoverd the pool was far too small, cold, and bug-filled to get any substantial exercise, but we all still sat and enjoyed the sun on our shoulders and the water on our feet. After meeting up for high tea, we headed out on our safari for the first day.
+
+![Atop a tree by the pool](botswana_images/Tree_Boy.jpg)
+
+We met our guide and hopped on a open-backed truck before starting to explore the bush. We started by heading towards the river. On the way we met a group of baboons eating some of the thick underbrush.
+
+![Baboons frolicking](botswana_images/Monkey.jpg)
+
+We had expected to have to search for animals, but once we got to the river, they were plentiful. It seemed like we were stopping every few feet to look at a new animal. We spotted giraffes, antilope, impala, zebra and even an elephant. We even saw a real-life zebra crossing! We also saw a crocodile, but only the very top of its head.
+
+![Graffe by the tree](botswana_images/Giraffes.jpg)
+
+![Antilopes by the river](botswana_images/Antilope.jpg)
+
+![The lone elephant](botswana_images/Big_guy.jpg)
+
+![Out for a walk](botswana_images/Out_for_a_walk.jpg)
+
+[//] # (Add impala)
+
+Before it got too late, we headed away from the river in search of the elusory leopard. Unfortunately, we weren't so lucky, but we maintain the hope of seeing it tomorrow morning when we leave at 6:30. Eventually, we stopped for a well-needed snack. Our guide was prepared and brought out drinks for the adults and juices for the kids, as well as naan and hummus as a snack. We watched the sunset while enjoying our small meal.
+
+![A quick break](botswana_images/Breaking.jpg)
+
+On the way back to the camp, we watched the changing colors of the sky while being struck by incoming bugs.
+
+![The seting of the sun](botswana_images/Sunset.jpg)
