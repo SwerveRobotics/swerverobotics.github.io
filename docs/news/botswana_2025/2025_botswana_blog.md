@@ -146,13 +146,13 @@ Before it got too late, we headed away from the river in search of the elusory l
 
 On the way back to the camp, we watched the changing colors of the sky while being struck by incoming bugs.
 
-![The seting of the sun](botswana_images/Sunset.jpg)
+![The setting of the sun](botswana_images/Sunset.jpg)
 
 ## Day 8 (7/20)
 
-We started out our day before the sun. We aren't allowed to traverse the camp in the dark by ourselfs, so our guide came to take us to the common area at 6:00. After finishing our breakfast of cereal, toast, and muffins that were rather like cupcakes, we headed out on our 2nd game drive.
+We started out our day before the sun. We weren't allowed to traverse the camp in the dark by ourselves, so our guide came to take us to the common area at 6:00. After finishing our breakfast of cereal, toast, and muffins that were rather like cupcakes, we headed out on our 2nd game drive.
 
-We were able to watch the sun rise as we entered the national park, seeing out first elephant of the day, However we had our sites set on only one thing, a leopard. Our spectacular guide Isaac took us to where he thought it most likely be a leopard. On the way we saw all sorts of other wonderful creatures, namely giraffes, of which there seems to be endless numbers.
+We were able to watch the sun rise as we entered the national park, seeing out first elephant of the day, However we had our sights set on only one thing: a leopard. Our spectacular guide Isaac took us to where he thought it most likely be a leopard. On the way we saw all sorts of other wonderful creatures, namely giraffes, of which there seems to be endless numbers.
 
 ![Drinking](botswana_images/Drinking.jpg)
 
@@ -183,3 +183,39 @@ The cruise started by peering at the many many water-skaters that graced the sur
 ![Chilling in the Sun](botswana_images/Chilling_in_the_sun.JPG)
 
 When we made it back we had about an hour of rest time, to watch the sun set and to relax a bit after our long day.
+
+
+## Day 9 (7/21)
+
+Today started just as yesterday did, at 5:30 in the morning. Breakfast was almost the same except the muffins had raisins this time and there was oatmeal. We ate quickly and set off on our journey. Our wonderful guide had heard rumor of Cheetah roaming around before the entrance to the park so we raced over to see it. On the way there, a whole herd of elephant crossed the road infront of us, so we got to stop and watch the parade go by before continuing in search of the Cheetah. After a fair amount of driving we saw in the distance a bunch of the safari vans crowded around the side of the road. As we drove up, we could just barely see the Cheetah but our driver was able to navigate of a better view. The cheetah was just walking along the side of the road, marking its scent, and climbing in trees. We were in awe over its agility and coat pattern and watched it for quite a while before actually going into the park.
+
+![Crossing the road](botswana_images/Crossing_the_road.jpg)
+
+![Smelling the smells](botswana_images/Smelling_the_smells.jpg)
+
+![Just napping](botswana_images/Just_napping.jpg)
+
+Today was a cloudy day so many of the creatures were hiding. This meant that most of what we enjoyed today, at least for the first few hours of the drive, was the landscape. This was more than okay though, because the clouds gave a completely new look to our surroundings and also reminded us a bit of home although no rain fell. We stoped for coffee, tea, and cookies again this morning and they were more valued today due to the chillier weather.
+
+![Cloudy day](botsana_images/Cloudy_day)
+
+We took off again in search of the hidden creatures, even going to far and to follow the lions tracks till they led into the bushes where we couldn't go, but Sara was adament about seeing lions and so we continued the search. It was only when Isaac said we had to start heading out of the park that we finally got to see the lions. Through a little off-roading, we managed to be right up near a mother, some teens, and some young ones the guide said were between 3 and 6 months old. Some of the teens were playing around, pawing and biting eachother. Eventually the mother lion got up and walked away, either to look for food, or because she was tired of her kids shennannigans. The mother lion ended up walking right infront of our vehicle, seemingly unbothered by us. 
+
+![Patroling](botswana_images/Patroling.jpg)
+
+![After a good nap](botswana_images/After_a_good_nap.jpg)
+
+![Playing around](<botswana_images/Playing around.jpg>)
+
+We drove back to the lodge where we got a couple free hours, broken up by a lovely lunch including kebabs, pasta, and salad, which we all enjoyed at our leisure, before taking off to either shower, nap, or whatever else we wanted. Then came high tea, with delicious chocolate banana cake and some hair braiding in preparation for our second safari of the day. Shortly after 3:30, we were on the trail again. Our guide took us to the other side of the park, which we hadn’t seen yet. We got to see a dried up water hole where we learned about animal trails and tracks.
+
+![Track from giraffe](<botswana_images/Giraffe track.jpg>)
+
+We took various photos of the gorgeous landscape, with an especially wonderful angle of antelope, giraffes and elephants all in one frame around the water hole with a sunset in the background. Later, we saw a large group of ants marching out of their mound and some warthogs. We didn't see many new animals, but the landscape was stunning and the safari was almost like a scenic drive. 
+After that we stopped for some beverages and snacks with a gorgeous view. We all enjoyed various drinks and continued driving.
+
+![Ants marching out of mound](<botswana_images/Ants.jpg>)
+
+On the way back to the camp, we saw a huge herd of elephants crossing our path, and saw a car almost crash into an antelope. After some leisure time and teaching some of the staff about robots, it was time for dinner. We had butternut soup and white bread rolls. Then, we had eggplant lasagna and roast beef, with roasted potatoes and cucumbers. We had some fun times trying the interesting cauliflower cheese. The chef very kindly made special pasta for Eric, who very much enjoyed the meals. Finally, our day ended with Emlyn and Eric retiring for the night and Hank and Bharvi finishing the blog. Overall, it was a fun but tiring day!
+
+![Huge herd of elephants](<botswana_images/Elephant herd.jpg>)
