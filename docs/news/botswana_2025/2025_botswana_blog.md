@@ -147,3 +147,39 @@ Before it got too late, we headed away from the river in search of the elusory l
 On the way back to the camp, we watched the changing colors of the sky while being struck by incoming bugs.
 
 ![The seting of the sun](botswana_images/Sunset.jpg)
+
+## Day 8 (7/20)
+
+We started out our day before the sun. We aren't allowed to traverse the camp in the dark by ourselfs, so our guide came to take us to the common area at 6:00. After finishing our breakfast of cereal, toast, and muffins that were rather like cupcakes, we headed out on our 2nd game drive.
+
+We were able to watch the sun rise as we entered the national park, seeing out first elephant of the day, However we had our sites set on only one thing, a leopard. Our spectacular guide Isaac took us to where he thought it most likely be a leopard. On the way we saw all sorts of other wonderful creatures, namely giraffes, of which there seems to be endless numbers.
+
+![Drinking](botswana_images/Drinking.jpg)
+
+While the group stoped on the edge of the river for some coffee, tea, and shortbread cookies we were approached by monkeys who were attempting to steal anything they could, however our guide chased them away. They were very silly monkeys, jumping around from tree to tree and safari van to safari van. Nevertheless, we enjoyed our morning treat before heading off on our adventure again.
+
+![Truck Monkey](botswana_images/Truck_Monkey.jpg)
+
+Inbetween our morning drinks and lunch was the time period of big cats (and also big elephants). First, Isaac took us to where he had heard there had been lions. While they were a little hard to see we could still see them curled up under a tree. After leaving, we came across a herd of elephants heading towards the river for a drink. We passed them and started to wait for them to arrive. While waiting, Coach Sara turned and was confrunted with a Leopard slinking between bushes. We followed along, catching glimpses of it when it passed in front of gaps in the foliage, before we finally lost sight of it up a tree. We pulled off the road to get a better view, and watched it survey the terrain, looking for prey.
+
+![Line Drinking](botswana_images/Line_Drinking.jpg)
+
+![Cat Tree](botswana_images/Cat_Tree.jpg)
+
+After a little while longer of viewing the wildlife we drove to our lunch spot, back by the monkeys, to enjoy a nice packed away lunch of pasta, salad, bread, and an assortment of crackers and cheeses. We spoke to a lovely family also on the trip that were from the UK. They were telling us about the pygmy goats they had waiting for them upon their arrival home. After packing up our lunch, we headed back out into the bush.
+
+![Sight Seeing](botswana_images/Sight_Seeing.jpg)
+
+In our after-lunch-before-cruise time period we saw some of our first Hippos of the day. Although they hid quickly by dipping under the water we were still able to get a fairly good look at them, though this was made more difficult by the fact that it was 4 people and one pair of binoculars. We speed along the river side for another couple hours before heading to the dock where we would launch our river cruise.
+
+![Hippo](botswana_images/Hippo.jpg)
+
+![Crossing](botswana_images/Crossing.jpg)
+
+The cruise started by peering at the many many water-skaters that graced the surface of the water. From there, we enjoyed the flood plains and it's many animals. Eric was very excited to see the crocodiles much closer as early they were only visble from farther away, but by far, the highlight of the river cruise were the birds. They ranged from small, like the king fisher, to huge like the fish eagle. The fish eagles were the photography gold of the day, with everyone on the boat simply having to snap a photo. After about two hours, we headed back to shore and back into the truck. We rode home rather quickly but made sure to stop for the water buffalo, which we hadn't yet seen on our trip.
+
+![Observing](botswana_images/observing.JPG)
+
+![Chilling in the Sun](botswana_images/Chilling_in_the_sun.JPG)
+
+When we made it back we had about an hour of rest time, to watch the sun set and to relax a bit after our long day.
