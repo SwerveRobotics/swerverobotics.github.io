@@ -240,6 +240,8 @@ With a plan now actually in place, we drove to Botswana Craft, a resturant-gifts
 
 An interesting and new experience for us was that just after we had ordered our food, our server came around with a bucket of hot soapy water and a big bowl. We had to put our hands over the bowl while the server poured the water over our hands to clean them. While the experience was new for everyone, it wasn't unpleasant, and left us with clean hands ready to yet our meals with. 
 
+![Eating at Botswana Craft](<botswana_images/Botswana Craft restaurant.jpg>)
+
 After eating we walked to the store area of Botswana craft. Lots and lots of browsing ensued and after like an hour all of our souvenirs had been purchased. Eric wanted to purchase a decorative ostrich egg but was informed via a conviently placed sign by said eggs that the Botswana equivalent of the Department of Fish and Wildlife aren't always thrilled with the eggs being taken out of the country so one might have to make a visit to their office and get a permit. With that knowlegde, Eric's hopes of getting a decorative Ostrich egg were dashed. Everyone wound up back at the car and we headed to the Dare To Dream office at the Innovation Hub to have a planning meeting for our Embassy event on Friday.
 
 Our meeting was incredibly productive. We went in with absolutley no idea what was actually going to be happening at the Embassy, and left with some idea of what was going to be happening at the Embassy, and a lot of homework. With that in mind we made a quick trip to the store to grab supplies for the event and supplies for dinner. So while the students worked on things for the Embassy (and played some uno) the adults prepared a lovely dinner of spaghetti (with three different sauce options), salad, and garlic bread. Even after dinner we got back to work, planning for the next day, and for the Embassy the day after that. Though with an early start the next day, things wrapped up pretty quick (except for the laundary which sat on "1 minute left" for like 5 mintues).
@@ -252,4 +254,12 @@ With a hard deadline of being out of the AirBNB at 8:30 people were up and runni
 
 When we first got to Dare To Dream, we reviewed yesterday's plan before getting to work. Eric and Emlyn worked on writing their introduction to FIRST and FLL speech, while Bharvi worked a website, and Hank worked on a program to showcase at the event. 
 
-Eventually students from a local FLL school team showed up to work with us. After introductions and explanations, we split into groups with the student to work on prepartions for the event. We decided that for a portion of the event we would split into stations with one Swerve student and one Botswana student per station. The stations are going to be a robot game demo, a code it your self area, an innovation project station, and a core values station. The hope is to engage the adults in hands on activities to build excitment for the program. This preparation took up most of the rest of the day with inter group collaboration and fun. At 3:15 we left to have our site visit at the Embassy. We went to plan out the location of tables and chairs and other such logistics. Before heading back to the AirBNB to work more in preparation for tommorrow.
+Eventually students from a local FLL school team showed up to work with us. After introductions and explanations, we split into groups with the student to work on prepartions for the event. We decided that for a portion of the event we would split into stations with one Swerve student and one Botswana student per station. The stations are going to be a robot game demo, a code it your self area, an innovation project station, and a core values station. The hope is to engage the adults in hands on activities to build excitment for the program. This preparation took up most of the rest of the day with inter group collaboration and fun. 
+
+![Group photo at Dare to Dream](<botswana_images/Dare To Dream discussion.jpg>)
+
+![A few people around a MASTERPIECE field with a robot](<botswana_images/Coding the robot.jpg>)
+
+At 3:15 we left to have our site visit at the Embassy. We went to plan out the location of tables and chairs and other such logistics. Before heading back to the AirBNB to work more in preparation for tommorrow.
+
+![Group photo at a U.S. Embassy garden in Botswana](<botswana_images/Scoping out the venue.jpg>)
