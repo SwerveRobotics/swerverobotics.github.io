@@ -224,11 +224,11 @@ On the way back to the camp, we saw a huge herd of elephants crossing our path, 
 
 In comparison with the last few days, today was rather slow. We slept until 7:00 and started packing to prepare for breakfast at 8:00. After we finished eating, we loaded into a van and headed to the airport to catch our flight back to Gaborone. Due to lack of demand for the direct route, our flight was moved to a quick connection in Maun and then on to Gaborone. We didn't even have to leave the plane! We used the rest of the trip to settle in for some well-deserved sleep.
 
-![Over Gaborone](<botswana_images/Over_Gaborone.jpg>)
+![Over Gaborone](<botswana_images/Over Gaborone.jpg>)
 
 Once we landed, we reclaimed our bags, rebooked our rental car, and headed out in search of food. For our late lunch, we got burgers at the same place we did the first day, but this time we were more adventurous with our food.
 
-![Good burger](<botswana_images/Good_Burger.jpg>)
+![Good burger](<botswana_images/Good burger.jpg>)
 
 After we finished, we headed to the grocery store to stock up on provisions then back to the Airbnb. For the rest of the day, we napped, read, and in the case of the girls, held a slumber party.
 
