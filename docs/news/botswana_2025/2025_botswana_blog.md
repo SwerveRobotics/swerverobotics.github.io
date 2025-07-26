@@ -192,7 +192,7 @@ Today started just as yesterday did: at 5:30 in the morning. Breakfast was almos
 
 ![Cheetah smelling the base of a tree](<botswana_images/Smelling the smells.jpg>)
 
-![Cheetah lying down in the grasses](botswana_images/Just%20napping.jpg)
+![Cheetah lying down in the grasses](<botswana_images/Just napping.jpg>)
 
 Today was a cloudy day, so many of the creatures were hiding. This meant that most of what we enjoyed today (at least for the first few hours of the drive) was the landscape. This was more than okay, though, because the clouds gave a completely new look to our surroundings, and also reminded us a bit of home, although no rain fell. We stopped for coffee, tea, and cookies again this morning, and they were more valued today due to the chillier weather.
 
