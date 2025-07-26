@@ -118,7 +118,7 @@ After we finished the falls, we had to rush to the border in order to we reach t
 
 We started our day at 8:00 with a breakfast of plenty of toast, eggs, and cereal. Then we made our way to the safari camp where we were treated to some delicous mango fruit drinks upon arrival, informed about the rest of our stay, and scared away from talking to the lions. After a quick game of cards, we were shown to our rooms and took in the gorgeous view of the Chobe River.
 
-![A view of the river](botswana_images/Chobe_River.jpg)
+![A view of the river](<botswana_images/Chobe River.jpg>)
 
 Then we returned to the common area for lunch. Eric, antsy to get moving and forbidden from running around the camp, instigated a trip to the pool. Eric discoverd the pool was far too small, cold, and bug-filled to get any substantial exercise, but we all still sat and enjoyed the sun on our shoulders and the water on our feet. After meeting up for high tea, we headed out on our safari for the first day.
 
