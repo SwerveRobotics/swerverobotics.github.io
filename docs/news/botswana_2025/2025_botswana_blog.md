@@ -192,7 +192,7 @@ Today started just as yesterday did: at 5:30 in the morning. Breakfast was almos
 
 ![Cheetah smelling the base of a tree](<botswana_images/Smelling the smells.jpg>)
 
-![Cheetah lying down in the grasses](<botswana_images/Just napping.jpg>)
+![Cheetah lying down in the grasses](botswana_images/Just%20napping.jpg)
 
 Today was a cloudy day, so many of the creatures were hiding. This meant that most of what we enjoyed today (at least for the first few hours of the drive) was the landscape. This was more than okay, though, because the clouds gave a completely new look to our surroundings, and also reminded us a bit of home, although no rain fell. We stopped for coffee, tea, and cookies again this morning, and they were more valued today due to the chillier weather.
 
@@ -224,11 +224,11 @@ On the way back to the camp, we saw a huge herd of elephants crossing our path, 
 
 In comparison with the last few days, today was rather slow. We slept until 7:00 and started packing to prepare for breakfast at 8:00. After we finished eating, we loaded into a van and headed to the airport to catch our flight back to Gaborone. Due to lack of demand for the direct route, our flight was moved to a quick connection in Maun and then on to Gaborone. We didn't even have to leave the plane! We used the rest of the trip to settle in for some well-deserved sleep.
 
-![Over Gaborone](<botswana_images/Over Gaborone.jpg>)
+![Over Gaborone](botswana_images/Over%20Gaborone.jpg)
 
 Once we landed, we reclaimed our bags, rebooked our rental car, and headed out in search of food. For our late lunch, we got burgers at the same place we did the first day, but this time we were more adventurous with our food.
 
-![Good burger](<botswana_images/Good burger.jpg>)
+![Good burger](botswana_images/Good%20burger.jpg)
 
 After we finished, we headed to the grocery store to stock up on provisions then back to the Airbnb. For the rest of the day, we napped, read, and in the case of the girls, held a slumber party.
 
