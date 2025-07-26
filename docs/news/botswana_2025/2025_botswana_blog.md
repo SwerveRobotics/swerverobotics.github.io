@@ -282,16 +282,16 @@ Finally, set up was completed and guests started trickling in. Some arriving in 
 
 ![Speechifying](<botswana_images/Speechifying.jpg>)
 
-![Pontificating](<botswana_images/bloviators.jpg>)
+![Pontificating](botswana_images/Bloviators.jpg)
 
 Since the panel ran late, there was a change in schedule so that the dignitaries that had to leave got to see a quick robot demo, thus leaving the event excited and inspired (we hope). With time in mind we began closing remarks, where we heard from the head master of the school we met with earlier on the trip. After closing remarks, the audience was free to wander the stations and eat refreshments. The stations peaked a lot of interest, engaging visitors hands on, especially the coding and robot demo stations. Lots of connections were made and doors were opened. Hank even taught and worked with one of the kids who taught the ambassador of Ukraine to Botsawna how to code! (Hank is now on a first name basis with the ambassador. Way to go Hank!)
 
-![A lot of words](<botswana_images/A_lot_of_words.jpg>)
+![A lot of words](<botswana_images/A lot of words.jpg>)
 
-![Presenting the project](<botswana_images/Presenting_the_project.jpg>)
+![Presenting the project](<botswana_images/Presenting the project.jpg>)
 
 After the event wound down, everyone was starving and so we went to a coffee shop called The Daily Grind to eat and debrief. We had some fun with the Iced Spiced Chai Lattes and Kombucha. Eric had one and others were curious, tried it, and did not like it. Overall, the consensus was that the event went very well and opened many doors, but some things could've gone better. Just as any event goes. We discussed some follow up steps and improvements for the next time and went home. 
 
 When we first got back we realized the door to one of the showers was jammed. Plus the light in the bathroom was incredibly dim. So lots of phone flashlights and some standing on chairs ensued, until Hank walked in, said "let me try" and fixed the problem with no struggle. The rest of the day was simply chilling, with all of us doing different things till the evening, where Emlyn made us all French Toast and Grilled cheese, and Emlyn and Bharvi drove Eric insane through sorting and messing up our jar of colored rubberbands. Finally, everyone is now talking and writing the blog before we retire for the night. 
 
-![Fixing the shower](<botswana_images/Fixing_the_shower.jpg>)
+![Fixing the shower](<botswana_images/Fixing the shower.jpg>)
