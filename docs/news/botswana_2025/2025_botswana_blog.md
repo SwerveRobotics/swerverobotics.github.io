@@ -263,3 +263,35 @@ Eventually students from a local FLL school team showed up to work with us. Afte
 At 3:15 we left to have our site visit at the Embassy. We went to plan out the location of tables and chairs and other such logistics. Before heading back to the AirBNB to work more in preparation for tommorrow.
 
 ![Group photo at a U.S. Embassy garden in Botswana](<botswana_images/Scoping out the venue.jpg>)
+
+## Day 13 (7/25)
+
+If we thought yesterday was an early morning, boy were we in for treat today. Being informed that traffic would be bad, we allotted an hour and a half to get from our AirBNB to the Embassy, which meant leaving the house at 6:30, which meant waking up between 5:00 and 5:45 depending on the person, and all of that for there to be very little traffic and for us to arrive a whole hour early. On top of that, our escort through the Embassy wasn't there so we wound up waiting an hour and twenty minutes in the car outside the venue.
+
+![Setting up](<botswana_images/Setting_up.jpg>)
+
+Once we finally made it inside, and the initial hecticness of getting into the venue settled, we started splitting up and doing various set-up. We finally met up with the younger kids, and Bharvi and Hank worked on assigning and teaching them various tasks, while Emlyn and Eric practiced the script and the older kids from Botswana worked on the coding. Later, Bharvi spoke on the podcast Dumela America about her experience in robotics and more. You can watch that [here](https://www.facebook.com/U.S.EmbassyGaborone/videos/1329566232097610/?app=fbl)!
+
+![Hank being really cool](<botswana_images/Hank_is_cool.jpg>)   
+
+![Practice makes perfect](<botswana_images/Practice_makes_perfect.jpg>)
+
+![Chatting](<botswana_images/Chatting.jpg>)
+
+Finally, set up was completed and guests started trickling in. Some arriving in fancy cars with chafeurs and drivers. Once the opening prayers and welcome remarks were completed, Emlyn, Eric, Lesire and Kgyle got up and made their prepared speech. They spoke on the first program, its many aspects both technical and core values. They then each covered how being in a FIRST program had impacted them. The audience seemed impressed, especcially after Sara informed them that the students had only met, written, and memorized the speech the day before. After that we started the panel. This was where a series of guests from different fields (including the lovely Heidi Lovett, a Finace expert, and a representitive from Ministry of Commerce and Innovation). The panel ran quite long, and many us were slightly bored. However, once the most esstemed panelist spoke — a 10 year old robotics student, president of her team, and wonderful speaker — they perked up and became excited to learn more.
+
+![Speechifying](<botswana_images/Speechifying.jpg>)
+
+![Pontificating](<botswana_images/bloviators.jpg>)
+
+Since the panel ran late, there was a change in schedule so that the dignitaries that had to leave got to see a quick robot demo, thus leaving the event excited and inspired (we hope). With time in mind we began closing remarks, where we heard from the head master of the school we met with earlier on the trip. After closing remarks, the audience was free to wander the stations and eat refreshments. The stations peaked a lot of interest, engaging visitors hands on, especially the coding and robot demo stations. Lots of connections were made and doors were opened. Hank even taught and worked with one of the kids who taught the ambassador of Ukraine to Botsawna how to code! (Hank is now on a first name basis with the ambassador. Way to go Hank!)
+
+![A lot of words](<botswana_images/A_lot_of_words.jpg>)
+
+![Presenting the project](<botswana_images/Presenting_the_project.jpg>)
+
+After the event wound down, everyone was starving and so we went to a coffee shop called The Daily Grind to eat and debrief. We had some fun with the Iced Spiced Chai Lattes and Kombucha. Eric had one and others were curious, tried it, and did not like it. Overall, the consensus was that the event went very well and opened many doors, but some things could've gone better. Just as any event goes. We discussed some follow up steps and improvements for the next time and went home. 
+
+When we first got back we realized the door to one of the showers was jammed. Plus the light in the bathroom was incredibly dim. So lots of phone flashlights and some standing on chairs ensued, until Hank walked in, said "let me try" and fixed the problem with no struggle. The rest of the day was simply chilling, with all of us doing different things till the evening, where Emlyn made us all French Toast and Grilled cheese, and Emlyn and Bharvi drove Eric insane through sorting and messing up our jar of colored rubberbands. Finally, everyone is now talking and writing the blog before we retire for the night. 
+
+![Fixing the shower](<botswana_images/Fixing_the_shower.jpg>)
