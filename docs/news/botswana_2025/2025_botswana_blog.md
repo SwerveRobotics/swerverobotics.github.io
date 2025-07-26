@@ -222,76 +222,76 @@ On the way back to the camp, we saw a huge herd of elephants crossing our path, 
 
 ## Day 10 (7/22)
 
-In comparison with the last few days, today was rather slow. We slept until 7:00 and started packing to prepare for breakfast at 8:00. After we finished eating, we loaded into a van and headed to the airport to catch our flight back to Gaborone. Due to lack of demand for the direct route, our flight was moved to a quick connection in Maun and then on to Gaborone. We didn't even have to leave the plane! We used the rest of the trip to settle in for some well-deserved sleep.
+In comparison with the last few days, today was rather slow. We slept until 7:00 and started packing to prepare for breakfast at 8:00. After we finished eating, we loaded into a van and headed to the airport to catch our flight back to Gaborone. Due to lack of demand for the direct route, our flight was changed to a quick connection in Maun and then on to Gaborone. We didn't even have to exit the plane! We used the rest of the trip to settle in for some well-deserved sleep.
 
-![Over Gaborone](botswana_images/Over%20Gaborone.jpg)
+![A view of Gaborone from the air](botswana_images/Over%20Gaborone.jpg)
 
 Once we landed, we reclaimed our bags, rebooked our rental car, and headed out in search of food. For our late lunch, we got burgers at the same place we did the first day, but this time we were more adventurous with our food.
 
-![Good burger](botswana_images/Good%20burger.jpg)
+![Burger with many toppings](botswana_images/Good%20burger.jpg)
 
-After we finished, we headed to the grocery store to stock up on provisions then back to the Airbnb. For the rest of the day, we napped, read, and in the case of the girls, held a slumber party.
+After we finished, we headed to the grocery store to stock up on provisions, then went back to the AirBNB. For the rest of the day, we napped and read, and the girls held a slumber party.
 
 ## Day 11 (7/23)
 
-The morning was a confusing period. We had gone to bed the night before without a plan and shockingly when we woke up, there was still no plan. Luckily the adults worked it all out, after multiple plans were made, scraped, made again, and scraped again. We finally worked out a plan to go get lunch, do some souvenir shopping, and make our way to our meeting with Dare To Dream at 2:30. 
+The morning was a confusing period. We had gone to bed the night before without a plan, and, shockingly, when we woke up, there was still no plan. Luckily, the adults worked it all out, but only after multiple plans were made, scrapped, made again, and scrapped again. We finally worked out a plan to go get lunch, do some souvenir shopping, and make our way to our meeting with Dare To Dream at 2:30. 
 
-With a plan now actually in place, we drove to Botswana Craft, a resturant-giftstore location where did enacted both the lunch and the souvenir shopping aspects of our plan. The resturant offered both Botswana classics and more traditional american cuisine. Oxtail, grilled 1/4 chicken with tradional spices, and some sort of bean meal, were are tasted and enjoyed by more adventurous members of the group. While others enjoyed pizza and chicken burgers more in their comfort zones. Either way the food was good. 
+With a plan now actually in place, we drove to Botswana Craft, a resturant-giftstore location where we enacted both the lunch and souvenir-shopping aspects of our plan. The resturant offered both traditional Setswana and traditional American cuisine. Oxtail, grilled chicken with traditional spices, and some sort of bean meal were tasted and enjoyed by more adventurous members of the group, while others enjoyed pizza and chicken burgers more in their comfort zones. Either way, the food was good. 
 
-An interesting and new experience for us was that just after we had ordered our food, our server came around with a bucket of hot soapy water and a big bowl. We had to put our hands over the bowl while the server poured the water over our hands to clean them. While the experience was new for everyone, it wasn't unpleasant, and left us with clean hands ready to yet our meals with. 
+An interesting and new experience for us was that just after we had ordered our food, our server came around with a jug of hot soapy water and a big bowl. We put our hands over the bowl while the server poured the water over our hands to clean them. While the experience was new for everyone, it wasn't unpleasant and left us with clean hands ready to eat our meals with. 
 
 ![Eating at Botswana Craft](<botswana_images/Botswana Craft restaurant.jpg>)
 
-After eating we walked to the store area of Botswana craft. Lots and lots of browsing ensued and after like an hour all of our souvenirs had been purchased. Eric wanted to purchase a decorative ostrich egg but was informed via a conviently placed sign by said eggs that the Botswana equivalent of the Department of Fish and Wildlife aren't always thrilled with the eggs being taken out of the country so one might have to make a visit to their office and get a permit. With that knowlegde, Eric's hopes of getting a decorative Ostrich egg were dashed. Everyone wound up back at the car and we headed to the Dare To Dream office at the Innovation Hub to have a planning meeting for our Embassy event on Friday.
+After eating, we walked to the store area of Botswana craft. Lots and lots of browsing ensued, and after an hour all of our souvenirs had been purchased. Eric wanted to purchase a decorative ostrich egg but was informed via a conveniently-placed sign by said eggs that the Botswana equivalent of the Department of Fish and Wildlife aren't always thrilled with the eggs being taken out of the country so one might have to make a visit to their office and get a permit. With that knowledge, Eric's hopes of getting a decorative ostrich egg were dashed. Everyone wound up back in the car and we headed to the Dare To Dream office at the Innovation Hub to have a planning meeting for our embassy event on Friday.
 
-Our meeting was incredibly productive. We went in with absolutley no idea what was actually going to be happening at the Embassy, and left with some idea of what was going to be happening at the Embassy, and a lot of homework. With that in mind we made a quick trip to the store to grab supplies for the event and supplies for dinner. So while the students worked on things for the Embassy (and played some uno) the adults prepared a lovely dinner of spaghetti (with three different sauce options), salad, and garlic bread. Even after dinner we got back to work, planning for the next day, and for the Embassy the day after that. Though with an early start the next day, things wrapped up pretty quick (except for the laundary which sat on "1 minute left" for like 5 mintues).
+Our meeting was incredibly productive. We went in with absolutely no idea what was actually going to be happening at the U.S. Embassy and left with some idea of what was going to be happening at the embassy (along with a lot of homework). With that in mind we made a quick trip to the store to grab supplies for the event and supplies for dinner. So while the students worked on things for the embassy event (and played some Uno), the adults prepared a lovely dinner of spaghetti (with three different sauce options), salad, and garlic bread. Even after dinner, we got back to work planning for the next day and for the embassy (the day after that), though with an early start the next day, things wrapped up pretty quick (except for the laundry, which remained at "1 minute left" for like 5 minutes).
 
 ![Group photo at a table with an FLL MASTERPIECE mat and mission modules](<botswana_images/Working around the table.jpg>)
 
 ## Day 12 (7/24)
 
-With a hard deadline of being out of the AirBNB at 8:30 people were up and running (some literally) rather early with people waking up between 6:30 and 7:45. Breakfast was mostly fend for your self but Rob was nice enough to make scrambeld eggs for several of us before we had to head out the door.
+With a hard deadline of being out of the AirBNB at 8:30, people were up and running (some literally) rather early, with people waking up between 6:30 and 7:45. Breakfast was mostly "fend for yourself", but Rob was nice enough to make scrambled eggs for several of us before we had to head out the door.
 
-When we first got to Dare To Dream, we reviewed yesterday's plan before getting to work. Eric and Emlyn worked on writing their introduction to FIRST and FLL speech, while Bharvi worked a website, and Hank worked on a program to showcase at the event. 
+When we first got to Dare To Dream, we reviewed yesterday's plan before getting to work. Eric and Emlyn worked on writing their "Introduction to FIRST and FLL" speech while Bharvi worked a website and Hank worked on a program to showcase at the event. 
 
-Eventually students from a local FLL school team showed up to work with us. After introductions and explanations, we split into groups with the student to work on prepartions for the event. We decided that for a portion of the event we would split into stations with one Swerve student and one Botswana student per station. The stations are going to be a robot game demo, a code it your self area, an innovation project station, and a core values station. The hope is to engage the adults in hands on activities to build excitment for the program. This preparation took up most of the rest of the day with inter group collaboration and fun. 
+Eventually, students from a local FLL team showed up to work with us. After introductions and explanations, we split into groups with the students to work on preparations for the event. We decided that, for a portion of the event, we would split into stations with one Swerve student and one Botswana student per station. The stations are going to be a robot game demo, a code-it-yourself area, an innovation project station, and a core values station. The hope is to engage the adults with hands-on activities to build excitement for the program. This preparation took up most of the rest of the day with inter-group collaboration and fun. 
 
 ![Group photo at Dare to Dream](<botswana_images/Dare To Dream discussion.jpg>)
 
 ![A few people around a MASTERPIECE field with a robot](<botswana_images/Coding the robot.jpg>)
 
-At 3:15 we left to have our site visit at the Embassy. We went to plan out the location of tables and chairs and other such logistics. Before heading back to the AirBNB to work more in preparation for tommorrow.
+At 3:15, we left to have our site visit at the embassy. We went to plan out the location of tables and chairs and other such logistics, before heading back to the AirBNB to work more in preparation for tommorrow.
 
 ![Group photo at a U.S. Embassy garden in Botswana](<botswana_images/Scoping out the venue.jpg>)
 
 ## Day 13 (7/25)
 
-If we thought yesterday was an early morning, boy were we in for treat today. Being informed that traffic would be bad, we allotted an hour and a half to get from our AirBNB to the Embassy, which meant leaving the house at 6:30, which meant waking up between 5:00 and 5:45 depending on the person, and all of that for there to be very little traffic and for us to arrive a whole hour early. On top of that, our escort through the Embassy wasn't there so we wound up waiting an hour and twenty minutes in the car outside the venue.
+If we thought yesterday was an early morning, boy were we in for a treat today. Being informed that traffic would be bad, we allotted an hour and a half to get from our AirBNB to the embassy, which meant leaving the house at 6:30, which in turn meant waking up between 5:00 and 5:45 depending on the person, and all of that for there to be very little traffic and for us to arrive a whole hour early. On top of that, our escort through the embassy wasn't there, so we wound up waiting an hour and twenty minutes in the car outside the venue.
 
-![Setting up](<botswana_images/Setting up.jpg>)
+![Chairs in the U.S. Embassy for the event](<botswana_images/Setting up.jpg>)
 
-Once we finally made it inside, and the initial hecticness of getting into the venue settled, we started splitting up and doing various set-up. We finally met up with the younger kids, and Bharvi and Hank worked on assigning and teaching them various tasks, while Emlyn and Eric practiced the script and the older kids from Botswana worked on the coding. Later, Bharvi spoke on the podcast Dumela America about her experience in robotics and more. You can watch that [here](https://www.facebook.com/U.S.EmbassyGaborone/videos/1329566232097610/?app=fbl)!
+Once we finally made it inside, after the initial hectic-ness of getting settled into the venue, we started splitting up and doing various set-up. We finally met up with the younger kids, and Bharvi and Hank worked on assigning and teaching them various tasks while Emlyn and Eric practiced the script and the older kids from Botswana worked on the coding. Later, Bharvi spoke on the podcast _Dumela America_ about her experience in robotics. You can watch that [here](https://www.facebook.com/U.S.EmbassyGaborone/videos/1329566232097610/?app=fbl)!
 
-![Hank being really cool](<botswana_images/Hank is cool.jpg>)   
+![Hank helping Haydee with line-following](<botswana_images/Hank is cool.jpg>)   
 
-![Practice makes perfect](<botswana_images/Practice makes perfect.jpg>)
+![The speech team practicing for the speech](<botswana_images/Practice makes perfect.jpg>)
 
-![Chatting](<botswana_images/Chatting.jpg>)
+![Bharvi speaking for the _Dumela America_ podcast](<botswana_images/Chatting.jpg>)
 
-Finally, set up was completed and guests started trickling in. Some arriving in fancy cars with chafeurs and drivers. Once the opening prayers and welcome remarks were completed, Emlyn, Eric, Lesire and Kgyle got up and made their prepared speech. They spoke on the first program, its many aspects both technical and core values. They then each covered how being in a FIRST program had impacted them. The audience seemed impressed, especcially after Sara informed them that the students had only met, written, and memorized the speech the day before. After that we started the panel. This was where a series of guests from different fields (including the lovely Heidi Lovett, a Finace expert, and a representitive from Ministry of Commerce and Innovation). The panel ran quite long, and many us were slightly bored. However, once the most esstemed panelist spoke — a 10 year old robotics student, president of her team, and wonderful speaker — they perked up and became excited to learn more.
+Finally, set-up was completed and guests started trickling in, some arriving in fancy cars with chaffeurs and drivers. Once the opening prayers and welcome remarks were completed, Emlyn, Eric, Lesire, and Kgyle got up and made their prepared speech. They spoke on the FIRST program and its many aspects: both its technical aspects and its core values. They then each covered how being in a FIRST program had impacted them. The audience seemed impressed, especially after Sara informed them that the students had only met, written, and memorized the speech the day before. After that, we started the panel. This was where a series of guests from different fields (including the lovely Heidi Lovett, a financial expert high up in the management of Nando's, the founder of the BRAST program, and a representative from the Ministry of Commerce and Innovation) answered questions from our panel facilitator. The panel ran quite long, and some of us were slightly bored. However, once the most esteemed panelist spoke — a 10-year-old robotics student, president of her team and a wonderful speaker — we perked up and became very excited.
 
-![Speechifying](<botswana_images/Speechifying.jpg>)
+![Eric making a speech; from left to right: Kgyle, Emlyn, Lesire, and Eric](<botswana_images/Speechifying.jpg>)
 
-![Pontificating](botswana_images/Bloviators.jpg)
+![Panel discussion; from left to right: the president, the ministry representative, the program founder, Coach Heidi, the financial expert](botswana_images/Bloviators.jpg)
 
-Since the panel ran late, there was a change in schedule so that the dignitaries that had to leave got to see a quick robot demo, thus leaving the event excited and inspired (we hope). With time in mind we began closing remarks, where we heard from the head master of the school we met with earlier on the trip. After closing remarks, the audience was free to wander the stations and eat refreshments. The stations peaked a lot of interest, engaging visitors hands on, especially the coding and robot demo stations. Lots of connections were made and doors were opened. Hank even taught and worked with one of the kids who taught the ambassador of Ukraine to Botsawna how to code! (Hank is now on a first name basis with the ambassador. Way to go Hank!)
+Since the panel ran late, there was a change in schedule so that the dignitaries that had to leave got to see a quick robot demo and left the event excited and inspired (we hope). With time in mind, we began closing remarks, where we heard from the headmaster of the school we met with earlier on the trip. After closing remarks, the audience was free to wander the stations and eat refreshments. The stations garnered a lot of interest, engaging visitors hands-on — especially the coding and robot demo stations. Lots of connections were made and lots of doors were opened. Hank even worked with one of the kids who taught the ambassador from Ukraine to Botsawna how to code! 
 
-![A lot of words](<botswana_images/A lot of words.jpg>)
+![Eric speaking while the Botswana FLL team demonstrates their robot](<botswana_images/A lot of words.jpg>)
 
-![Presenting the project](<botswana_images/Presenting the project.jpg>)
+![Bharvi and Lesire presenting the Knight Gnomes website](<botswana_images/Presenting the project.jpg>)
 
-After the event wound down, everyone was starving and so we went to a coffee shop called The Daily Grind to eat and debrief. We had some fun with the Iced Spiced Chai Lattes and Kombucha. Eric had one and others were curious, tried it, and did not like it. Overall, the consensus was that the event went very well and opened many doors, but some things could've gone better. Just as any event goes. We discussed some follow up steps and improvements for the next time and went home. 
+After the event wound down, everyone was starving, and so we went to a coffee shop called The Daily Grind to eat and debrief. We had some fun with the "Iced Spiced Chai Lattes" and kombucha we ordered. Eric had kombucha, and others were curious, tried it, and did not like it. Overall, the consensus was that the event went very well and opened many doors — but some things could've gone better, just as any event goes. We discussed some follow-up steps and improvements for the next time and went home. 
 
-When we first got back we realized the door to one of the showers was jammed. Plus the light in the bathroom was incredibly dim. So lots of phone flashlights and some standing on chairs ensued, until Hank walked in, said "let me try" and fixed the problem with no struggle. The rest of the day was simply chilling, with all of us doing different things till the evening, where Emlyn made us all French Toast and Grilled cheese, and Emlyn and Bharvi drove Eric insane through sorting and messing up our jar of colored rubberbands. Finally, everyone is now talking and writing the blog before we retire for the night. 
+When we first got back, we realized the door to one of the showers was jammed, plus the light in the bathroom was incredibly dim. So, lots of phone flashlights and some standing on chairs ensued until Hank walked in, said "let me try", and fixed the problem with no struggle. The rest of the day was simply chilling, with all of us doing different things till the evening, when Emlyn made us all French toast and grilled cheese sandwiches. Emlyn and Bharvi drove Eric insane by sorting and messing up our jar of colored rubberbands. Everyone is talking and writing the blog before we retire for the night. 
 
-![Fixing the shower](<botswana_images/Fixing the shower.jpg>)
+![Rob standing on a chair and tussling with the shower door](<botswana_images/Fixing the shower.jpg>)
