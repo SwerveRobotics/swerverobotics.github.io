@@ -196,7 +196,7 @@ Today started just as yesterday did: at 5:30 in the morning. Breakfast was almos
 
 Today was a cloudy day, so many of the creatures were hiding. This meant that most of what we enjoyed today (at least for the first few hours of the drive) was the landscape. This was more than okay, though, because the clouds gave a completely new look to our surroundings, and also reminded us a bit of home, although no rain fell. We stopped for coffee, tea, and cookies again this morning, and they were more valued today due to the chillier weather.
 
-![An overcast sky](<botswana_images/Cloudy day>)
+![An overcast sky](<botswana_images/Cloudy day.jpg>)
 
 We took off again in search of the hidden creatures, even going so far as to follow the lions' tracks till they led into the bushes where we couldn't go. Even so, Sara was adamant about seeing lions, and so we continued the search. It was only when Isaac said we had to start heading out of the park that we finally got to see the lions. Through a little off-roading, we managed to get right up near a mother, some teens, and some young ones the guide said were between 3 and 6 months old. Some of the teens were playing around, pawing, and biting each other. Eventually, the mother lion got up and walked away, either to look for food or because she was tired of her kids' shenanigans. The mother lion ended up walking right in front of our vehicle, seemingly unbothered by us. 
 
@@ -268,13 +268,13 @@ At 3:15 we left to have our site visit at the Embassy. We went to plan out the l
 
 If we thought yesterday was an early morning, boy were we in for treat today. Being informed that traffic would be bad, we allotted an hour and a half to get from our AirBNB to the Embassy, which meant leaving the house at 6:30, which meant waking up between 5:00 and 5:45 depending on the person, and all of that for there to be very little traffic and for us to arrive a whole hour early. On top of that, our escort through the Embassy wasn't there so we wound up waiting an hour and twenty minutes in the car outside the venue.
 
-![Setting up](<botswana_images/Setting_up.jpg>)
+![Setting up](<botswana_images/Setting up.jpg>)
 
 Once we finally made it inside, and the initial hecticness of getting into the venue settled, we started splitting up and doing various set-up. We finally met up with the younger kids, and Bharvi and Hank worked on assigning and teaching them various tasks, while Emlyn and Eric practiced the script and the older kids from Botswana worked on the coding. Later, Bharvi spoke on the podcast Dumela America about her experience in robotics and more. You can watch that [here](https://www.facebook.com/U.S.EmbassyGaborone/videos/1329566232097610/?app=fbl)!
 
-![Hank being really cool](<botswana_images/Hank_is_cool.jpg>)   
+![Hank being really cool](<botswana_images/Hank is cool.jpg>)   
 
-![Practice makes perfect](<botswana_images/Practice_makes_perfect.jpg>)
+![Practice makes perfect](<botswana_images/Practice makes perfect.jpg>)
 
 ![Chatting](<botswana_images/Chatting.jpg>)
 
