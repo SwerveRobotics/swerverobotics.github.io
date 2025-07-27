@@ -295,3 +295,50 @@ After the event wound down, everyone was starving, and so we went to a coffee sh
 When we first got back, we realized the door to one of the showers was jammed, plus the light in the bathroom was incredibly dim. So, lots of phone flashlights and some standing on chairs ensued until Hank walked in, said "let me try", and fixed the problem with no struggle. The rest of the day was simply chilling, with all of us doing different things till the evening, when Emlyn made us all French toast and grilled cheese sandwiches. Emlyn and Bharvi drove Eric insane by sorting and messing up our jar of colored rubberbands. Everyone is talking and writing the blog before we retire for the night. 
 
 ![Rob standing on a chair and tussling with the shower door](<botswana_images/Fixing the shower.jpg>)
+
+## Day 14 (7/26)
+
+Since yesterday’s wake up call arrived so early, today’s was noticeably less jarring. People meandered into the kitchen as their hearts or their stomachs desired. The plumbers came over again to attempt to fix the issue they tried to fix last time, with no luck still. 
+
+Around noon, we set off for historic downtown. We decided to give Nando’s a shot for lunch and the overall consensus was good. Earlier in the day, we had checked the website for Botswana’s National Museum and it claimed to be closed Saturday–Monday. This was saddening for a bit, but then when we drove past the museum on the way to lunch, it appeared to be open? We figured it was worth a shot, so, after lunch, we made the 4 minute walk over to the museum. Lo and behold, the museum was in fact open!
+
+We explored the exhibits for a bit, some of us faster than others, learning about the history of Botswana, their cultural sites, their modern politics, and so much more. Unfortunately, the majority of the museum was seemingly under construction, so there wasn’t a whole lot to see. So, after a little while we moved on.
+
+![Butterfly exhibit in the national museum](<botswana_images/Dead butterflies.jpg>)
+
+We decided to explore historic downtown a little bit. Specifically, we explored the stalls and stands that lined the streets. The adults shopped slower, only making one or two trips down the streets; meanwhile, the students lapped them several times, walking back and forth and back and forth.
+
+![The four of us walking down the stall-lined street](<botswana_images/Walking down the street.jpg>)
+
+Eventually, we met up with Heidi’s friend Gaone and her kids. We went to a historic hotel for tea (and milkshakes and cake) as well as insightful conversation. We talked about the FIRST programs, geography, various different school systems, and our event yesterday. Unfortunately, the sun was rapidly setting, and our new friends wanted to get home before dark.
+
+![Group photo of us, Gaone, and her son and daughter in front of the tea shop](<botswana_images/Gaone and her kids.jpg>)
+
+With that, we went to the grocery store for what we hope will be the last time, grabbing food for dinner and breakfast for tomorrow and Monday before we leave. Everyone seemed pretty tuckered out, so we went home and proceeded to sit by ourselves in various corners of the house, all grabbing dinner as we pleased and retiring to bed.
+
+## Day 15 (7/27) 
+
+With one full day left, we decided to spend it experiencing as much of Botswana’s nature and culture as possible. We woke up early in the morning and went on a beautiful hike. It was stunning, but incredibly rocky. There were two groups, one slower and one faster. In the end, both (one with far more breaks) made it up to the top and looked at the gorgeous view of the city and quarry. It was the highest point in Botswana!
+
+![Kgale Hill sign instructing us not to litter](<botswana_images/Hill sign.jpg>)
+
+![Danoher Kgale Quarry](<botswana_images/Quarry.jpg>)
+
+![Gabarone from the top of Kgale Hill](<botswana_images/Gaborone from its highest point.jpg>)
+
+![Butterfly (live) sitting on Coach Sara's fingertip](<botswana_images/Butterfly.jpg>)
+
+We were all exhausted and went home to shower and eat. We all took turns to shower, and ate quick meals of grilled cheese and peanut butter and jelly sandwiches. Afterwards, everyone got dressed and ready for the dance performance that Kevin had recommended. 
+
+When we arrived, we were over half an hour early, so we took some time to walk around, chat, stand in the sun, and finally wait in line. Because the internet was slow and we didn’t know Setswana, we had very little idea of what the actual performance was about.
+
+![Poster of the Mophato Dance Theatre's Borwa Inyaya Performance](<botswana_images/Dance performance poster.jpg>)
+
+The first performance was very, very, very difficult to sit through. Not because it was bad (the performances and dancers were absolutely mind-blowing), but because we were expecting a light-hearted dance performance and got a gritty, visceral performance about a girl getting kidnapped, riots, and police brutality based on a true story in Botswana. 
+
+Once we’d all gotten through that, we could appreciate the storyline and the dancers very much, as well as the live sound effects and spotlights. The second act was much lighter, about boys going to work in South African gold mines, partying and dancing, and returning home. Most of us absolutely adored it, and we found out that the troupe had been invited for the World Dance Festival in South Korea.
+
+![Male and female dancers in colorful costumes dancing underneath bright lights](<botswana_images/Dance performance.jpg>)
+
+After the performance, we spent some time talking to the dancers and producers and decided to go to the mall to kill some time, shop, and later have dinner. Unfortunately, we found that the mall was mostly closed because it was Sunday and went for an early dinner instead. We went back to Bukhara, the restaurant we’d been to with Dare to Dream, and had a lovely dinner, with Bharvi getting her Indian food and various shakes and desserts. Finally, we were all exhausted and some of us did some grocery shopping before we went home and wrote the blog, dropped some things off, and killed some time before we all went to sleep. 
+
