@@ -318,7 +318,7 @@ With that, we went to the grocery store for what we hope will be the last time, 
 
 ## Day 15 (7/27) 
 
-With one full day left, we decided to spend it experiencing as much of Botswana’s nature and culture as possible. We woke up early in the morning and went on a beautiful hike. It was stunning, but incredibly rocky. There were two groups, one slower and one faster. In the end, both (one with far more breaks) made it up to the top and looked at the gorgeous view of the city and quarry. It was the highest point in Botswana!
+With one full day left, we decided to spend it experiencing as much of Botswana’s nature and culture as possible. We woke up early in the morning and went on a beautiful hike. It was stunning, but incredibly rocky. There were two groups, one slower and one faster. In the end, both (one with far more breaks) made it up to the top and looked at the gorgeous view of the city and quarry. It was the highest point in Gabarone!
 
 ![Kgale Hill sign instructing us not to litter](<botswana_images/Hill sign.jpg>)
 
@@ -328,17 +328,28 @@ With one full day left, we decided to spend it experiencing as much of Botswana�
 
 ![Butterfly (live) sitting on Coach Sara's fingertip](<botswana_images/Butterfly.jpg>)
 
-We were all exhausted and went home to shower and eat. We all took turns to shower, and ate quick meals of grilled cheese and peanut butter and jelly sandwiches. Afterwards, everyone got dressed and ready for the dance performance that Kevin had recommended. 
+We were all exhausted and went home to shower and eat. We all took turns to shower, and ate quick meals of grilled cheese and peanut butter and jelly sandwiches. Afterwards, everyone got dressed and ready for the dance performance that Kevin, our photographer for the trip, had recommended to us the day before. 
 
-When we arrived, we were over half an hour early, so we took some time to walk around, chat, stand in the sun, and finally wait in line. Because the internet was slow and we didn’t know Setswana, we had very little idea of what the actual performance was about.
+When we arrived, we were over half an hour early, so we took some time to walk around, chat, stand in the sun, and finally wait in line. Because the internet was slow and we don’t know Tswana, we had very little idea of what the actual performance was about and thus went in blind, not knowing what to expect.
 
 ![Poster of the Mophato Dance Theatre's Borwa Inyaya Performance](<botswana_images/Dance performance poster.jpg>)
 
-The first performance was very, very, very difficult to sit through. Not because it was bad (the performances and dancers were absolutely mind-blowing), but because we were expecting a light-hearted dance performance and got a gritty, visceral performance about a girl getting kidnapped, riots, and police brutality based on a true story in Botswana. 
+The first act was very, very, very difficult to sit through. Not because it was bad (the performances and dancers were absolutely mind-blowing), but because we were expecting a more light-hearted dance performance and got a gritty, visceral performance about the true and horrifying story of Segametsi Mogomotsi and the riots that followed her kidnapping and ritualistic murder. The dance was incredibly powerful and left us all feeling a variety of different emotions.
 
-Once we’d all gotten through that, we could appreciate the storyline and the dancers very much, as well as the live sound effects and spotlights. The second act was much lighter, about boys going to work in South African gold mines, partying and dancing, and returning home. Most of us absolutely adored it, and we found out that the troupe had been invited for the World Dance Festival in South Korea.
+Once we’d all gotten through the heavy emotional load of the first act, though, we could appreciate the storyline and the dancers from an artistic perspective, as well as the live sound effects and spotlights. The second act was much lighter but still an important part of Botswana's history. It was about boys going to work in South African gold mines, partying and dancing, and returning home to their wives and daughters. Most of us absolutely adored the production, and we found out afterwords that the troupe had been invited for the World Dance Festival in South Korea. We also learned at the Vice President of Botswana was in attendance. He was called up onstage after the performance to shake hands with the dancers and the behind-the-scences workers.
 
 ![Male and female dancers in colorful costumes dancing underneath bright lights](<botswana_images/Dance performance.jpg>)
 
-After the performance, we spent some time talking to the dancers and producers and decided to go to the mall to kill some time, shop, and later have dinner. Unfortunately, we found that the mall was mostly closed because it was Sunday and went for an early dinner instead. We went back to Bukhara, the restaurant we’d been to with Dare to Dream, and had a lovely dinner, with Bharvi getting her Indian food and various shakes and desserts. Finally, we were all exhausted and some of us did some grocery shopping before we went home and wrote the blog, dropped some things off, and killed some time before we all went to sleep. 
+After the performance, we spent some time talking to the dancers and producers, learning more about their program and how to support them. After, we ecided to go to the mall to kill some time, shop, and later have dinner. Unfortunately, we found that the mall was mostly closed because it was Sunday so went for an early dinner instead. We went back to Bukhara, the restaurant we’d been to with Dare to Dream, and had a lovely dinner, with Bharvi getting her Indian food and various shakes and desserts. Finally, we were all exhausted and some of us did some grocery shopping before we went home and wrote the blog, dropped some things off, and killed some time before we all went to sleep in prep for the next day.
 
+## Day 16 (7/28)
+
+This morning started as most of the rest did, with people waking up at various times in preparation for our exit interviews with our photographer Kevin. The hope is that by talking about our experience, we can encourage future groups of students, whether in the US or in Botswana to continue with the program as well as to get closure on the experience for ourselves.
+
+We're grateful to all who made the trip possible.
+
+Thank you, sponsors and donors.
+Thank you, Botswana.
+Thank you, U.S. Embassy.
+Thank you, Dare To Dream.
+And, finally, thank you, Swerve Robotics.
