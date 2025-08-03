@@ -342,9 +342,23 @@ Once we’d all gotten through the heavy emotional load of the first act, though
 
 After the performance, we spent some time talking to the dancers and producers, learning more about their program and how to support them. After, we ecided to go to the mall to kill some time, shop, and later have dinner. Unfortunately, we found that the mall was mostly closed because it was Sunday so went for an early dinner instead. We went back to Bukhara, the restaurant we’d been to with Dare to Dream, and had a lovely dinner, with Bharvi getting her Indian food and various shakes and desserts. Finally, we were all exhausted and some of us did some grocery shopping before we went home and wrote the blog, dropped some things off, and killed some time before we all went to sleep in prep for the next day.
 
-## Day 16 (7/28)
+## Day 16 (7/28) and Day 17 (7/29)
 
 This morning started as most of the rest did, with people waking up at various times in preparation for our exit interviews with our photographer Kevin. The hope is that by talking about our experience, we can encourage future groups of students, whether in the US or in Botswana to continue with the program as well as to get closure on the experience for ourselves.
+
+![Hide and go seek](<botswana_images/Hide_and_go_seek.jpg>)
+
+Then we left to get some last goodbyes with our partners, Dare to Dream. After a long discussion about the future of the program, we were drawn by our stomachs to the mall where we picked up lunch. The first time we had been at that mall, we noticed a very cool special store, but unfortunately, we didn't get a chance to shop. This grave injustice was rectified immediately! More souvenirs were quickly purchased and we headed to the airport to return our van before 3:00. We had a tea (or juice) party before one last goodbye with Captain Phatsima, the leader of Dare to Dream.
+
+Our first flight to Johannesburg was just a quick hour. After we landed Eric's quest began! After being unable to buy an egg in Gaborone, Eric got his hopes up about being able to purchase one in the airport, once we were safely past customs. SOME of the group didn't think Eric would be able to make it to his egg in time for the 2:00 hour layover. Once we got through the passport check, we ran through arrivals, anxiously waited for the security line, then sprinted to the prize. A giftshop we know had the eggs. In the end, we managed to secure the egg with plenty of time to spare.
+
+![Leaving for the last time](<botswana_images/Leaving_Botswana.jpg>)
+
+Once we reached Doha, we had to say goodbye to Bharvi, as she was flying straight to India to intern as a radio jockey! Unfortunately, no one actually knew where we were dropping Bharvi off. Heidi and Bharvi ran up and down the airport three times before finally handing her over to an airport employee who promised to take her to the drop off location. Heidi was able to make it back to the terminal just before the plane started boarding.
+
+The rest of the trip was relatively uneventful. Once we made it back to Seattle, everyone was ready to reunite with their families, so made some quick goodbyes, before heading for home.
+
+![Sleepful in Seattle](<botswana_images/Sleepful in Seattle.jpg>)
 
 We're grateful to all who made the trip possible.
 
