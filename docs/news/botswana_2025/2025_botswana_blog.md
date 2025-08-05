@@ -356,9 +356,11 @@ Our first flight to Johannesburg was just a quick hour. After we landed Eric's q
 
 Once we reached Doha, we had to say goodbye to Bharvi, as she was flying straight to India to intern as a radio jockey! Unfortunately, no one actually knew where we were dropping Bharvi off. Heidi and Bharvi ran up and down the airport three times before finally handing her over to an airport employee who promised to take her to the drop off location. Heidi was able to make it back to the terminal just before the plane started boarding.
 
+![About to fly away](<botswana_images/About_to_fly_away.jpg>)
+
 The rest of the trip was relatively uneventful. Once we made it back to Seattle, everyone was ready to reunite with their families, so made some quick goodbyes, before heading for home.
 
-![Sleepful in Seattle](<botswana_images/Sleepful in Seattle.jpg>)
+![One last goodbye](<botswana_images/One_last_goodbye.jpg>)
 
 We're grateful to all who made the trip possible.
 
